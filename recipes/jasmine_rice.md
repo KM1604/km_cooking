@@ -13,8 +13,10 @@ Wash rice in cold water and drain. Add rice, water, and oil to instant pot.
 Add spices to taste: salt, paprika, oregano, thyme, tumeric, garlic, cayenne, etc.
 
 ### Cook in instant pot
-* Cook for 4min, allow to warm for 10min
-* release pressure, stir, and serve
+
+Cook for 4min, allow to warm for 10min
+
+release pressure, stir, and serve
 
 ## In a pan
 
