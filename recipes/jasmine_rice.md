@@ -4,8 +4,8 @@
 ## In the instant pot
 
 ### Prep the rice
-* 50g of rice per person (approx)
-* 90% water per g of rice
+* 50g of rice per serving (approx)
+* 150% water per g of rice
 * 5% oil per g of rice
 
 Wash rice in cold water and drain. Add rice, water, and oil to instant pot.

@@ -29,7 +29,7 @@ Cut dough into two halves. Roll out to flat sheet the width of your bread pan an
 
 "Roll up" your dough rectangle, pinching occasionally to seal. Avoid creating air pockets, as this will hurt the crumb of the final loaf.
 
-Once rolled, place each loaf in lightly oiled bread pan and put both pans under a towel in a warm place to prove for 40min. Loaves should increase 70-100% in size.
+Once rolled, place each loaf in lightly oiled bread pan and put both pans under a towel in a warm place to prove for 30min. Loaves should increase 70-100% in size.
 
 ### Bake
 Bake uncovered in preheated oven at 425F for 25-30 minutes. Loaves should be hollow when baked well. Turn out onto a cooling rack and let cool at least 15min before cutting.
