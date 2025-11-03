@@ -2,7 +2,7 @@
 
 ### Combine in instant pot
 * 80g dry steel cut oats per serving
-* 320g water per serving (can replace up to 1/4 of total weight with milk to taste)
+* 240g water per serving (can replace up to 1/4 of total weight with milk to taste)
 
 ### Cook in instant pot
 * Run for 4 minutes on high pressure
