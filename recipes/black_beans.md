@@ -4,7 +4,8 @@
 ### Prep
 * put dry black beans in the instant pot (50g/person suggested)
 * 250% water per black beans by weight (125g/person)
-* Add salt, spices, a bit of sugar, and/or oil to taste
+* Add salt, spices, a bit of sugar, etc.
+* add oil (olive oil or canola works) or butter to taste
 * Add hot peppers, onion, small-diced carrot if desired
 
 ### Cook
